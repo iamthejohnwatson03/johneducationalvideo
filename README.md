@@ -1,2 +1,0 @@
-# johneducationalvideo
-Project website
